@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @BnuyaSako
 - 👀 I’m interested in bnuys
-- 🌱 I’m currently learning Java
-- 💞️ I’m looking to collaborate on a mod
 - 📫 How to reach me bindocat2006@gmail.com
 - 😄 Pronouns: she/her/bnuya(bnuy)
 - ⚡ Fun fact: mi like bnuys
